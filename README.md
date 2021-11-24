@@ -1,4 +1,4 @@
-![King Ache](https://telegra.ph/file/0f26d8f2b7e86eaf10734.jpg)
+![King Ache](https://telegra.ph/file/ddf68be9283878e3c56c8.jpg)
 
 ```HELLO JAMET```
 
